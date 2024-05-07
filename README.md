@@ -1,1 +1,1 @@
-Esse éum repositorio par diciplina de Trabalho interdiciplinar
+Esse éum repositorio para diciplina de Trabalho interdiciplinar
